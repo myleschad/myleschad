@@ -1,7 +1,4 @@
 yo its me
-here to post stuff. mit accept my application now
-learning: everything
-collaboration: yes
 twitter.com/meelzchad
 
 <!---
